@@ -5,6 +5,8 @@ The Mardi Himal Base Camp Trek is a stunning trek located in the Annapurna regio
 # [Visit Here for More Info](https://nepaladventuretrail.com/tour/mardi-himal-base-camp-trek) 
 ### Learn more about Mardi Himal Base Camp Trek.
 
+![Screenshot](https://nepaladventuretrail.com/wp-content/uploads/2024/12/mardi-base-camp-trek-nepal-adventure-trail-scaled.webp)
+
 ## Highlights of Mardi Himal Base Camp Trek
 
 - **Scenic Views**: Amazing views of Annapurna, Machapuchare, Mardi Himal, and other peaks.
@@ -51,6 +53,8 @@ The Mardi Himal Base Camp Trek is a stunning trek located in the Annapurna regio
 ### Day 11: Departure
 - Free time for shopping or sightseeing in Kathmandu before departure.
 
+![screenshot](https://nepaladventuretrail.com/wp-content/uploads/2024/12/Mardi-BC.webp)
+
 ## Difficulty Level
 
 This trek is considered moderate in difficulty. It requires a basic level of fitness, as you will be trekking at altitudes up to 4,500 meters (14,764 feet). The trek includes some steep sections, but overall the trail is well-maintained and suitable for most trekkers with some previous experience.
@@ -75,6 +79,8 @@ This trek is considered moderate in difficulty. It requires a basic level of fit
   
 You can obtain these permits in Kathmandu or Pokhara.
 
+![Screenshots](https://nepaladventuretrail.com/wp-content/uploads/2024/12/Way-to-Mardi.webp)
+
 ## Difficulty Level
 
 The Mardi Himal Base Camp Trek is rated as **moderate**. While it doesn't involve technical climbing, the trek involves significant altitude gain and some steep sections, so a reasonable level of fitness and some previous trekking experience is recommended.
@@ -90,6 +96,8 @@ The Mardi Himal Base Camp Trek is rated as **moderate**. While it doesn't involv
 - **Unmatched Views**: The trek offers some of the best close-up views of the Annapurna range and Machapuchare (Fishtail Mountain).
 - **Short Duration**: This is a shorter trek compared to others like the Annapurna Circuit or Everest Base Camp, making it perfect for those with limited time.
 - **Cultural Exploration**: Pass through local villages, get to know the hospitality of the Nepali people, and explore their cultures.
+
+![screenshots](https://nepaladventuretrail.com/wp-content/uploads/2024/12/Langtang-valley-trek-nepal-adventure-trail-13-scaled.webp)
 
 ## Book Your Trek
 
